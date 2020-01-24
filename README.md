@@ -4,5 +4,5 @@ Once upon a time
 the silence was palpable
 far far away
 on a dark evening 
-There was a scared a little 
+There was a scared a little man
 and he was wearing socks.
